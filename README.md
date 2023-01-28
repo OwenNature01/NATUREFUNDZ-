@@ -1,0 +1,2 @@
+# NATUREFUNDZ-
+Self minded 
